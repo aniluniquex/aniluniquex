@@ -2,7 +2,8 @@
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate with people...
-I was fascinated to learn new technologies and sometimes film making and have fun with them!!!
+I was fascinated to learn new technologies
+  Founding uniquex groups
 
 
 <!---
